@@ -2,7 +2,7 @@
 - 👀 I’m interested in making projects
 - 🌱 I’m currently learning in AI
 - 💞️ I’m looking to collaborate on great projects
-- 📫 How to reach me at linkedin
+- 📫 How to reach me at Linkedin Here is the link: https://www.linkedin.com/in/neha-prasad-92499821b/
 - 😄 Pronouns: she/her
 
 
